@@ -1,1 +1,1 @@
-Songtext Wind of Change
+Songtext Wind of Change von den Scorpions 
